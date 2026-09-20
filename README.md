@@ -10,6 +10,7 @@
 
 ## MORE:
 **nothing, hope you like what we, or i build**
+
 **actually, if you want to join the community, join here! https://discord.gg/F34cJqT3Zb**
 
 **i also dont know how to write readme's, sorry for this messy stuff**
